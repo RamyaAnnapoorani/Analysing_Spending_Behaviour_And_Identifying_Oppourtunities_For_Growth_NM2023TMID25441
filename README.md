@@ -1,4 +1,4 @@
-# Analysing_Spending_Behaviour_And_Identifying_Oppourtunities_For_Growth_NM2023TMID25441
+# Unveiling_Market_Insights_Analysing_Spending_Behaviour_And_Identifying_Oppourtunities_For_Growth_NM2023TMID25441
 
 link for the demo video
 
